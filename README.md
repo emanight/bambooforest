@@ -1,1 +1,1 @@
-# bambooforest
+# Bamboo Forest Privacy Policy
